@@ -9,6 +9,8 @@
 
 # [⊹ ilysia instafade](https://www.mediafire.com/file/093ssywt5gjpvti/%25E2%258A%25B9_ilysia_instafade.osk/file)![screenshot027](https://github.com/evrsense/skins/assets/158487080/d496a3b2-8a32-4588-bbef-12b098a3a737)
 
+# [ lazy tranquil edit](https://www.mediafire.com/file/0r7sckurmbmtx08/tranquil+edit.osk/file)![screenshot028](https://github.com/evrsense/skins/assets/158487080/405ef599-bcef-4dbe-ad7f-63ae1a4d0168)
+
 
 
 # [selene](https://www.mediafire.com/file/dy6xxyyyb8k8v7y/selene.osk/file)![screenshot004](https://github.com/silveine/skins/assets/130988602/aff9bfb2-2358-448b-a0bd-8793bdfde704)
