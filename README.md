@@ -1,5 +1,16 @@
 # skins
 
+
+# [⊹ eternal](https://www.mediafire.com/file/217h1wqyndpz0sq/%25E2%258A%25B9_eternal.osk/file)![screenshot025](https://github.com/evrsense/skins/assets/158487080/d2d0ebe1-63ea-47ff-923d-55902c3cc994)
+
+
+# [⊹ ilysia](https://www.mediafire.com/file/fdr071mkao2b16u/-_%25E2%258A%25B9_ilysia.osk/file)![screenshot026](https://github.com/evrsense/skins/assets/158487080/dced346c-3270-4575-9dc1-af9dd87c90cc)
+
+
+# [⊹ ilysia instafade (its the same shit as](https://www.mediafire.com/file/093ssywt5gjpvti/%25E2%258A%25B9_ilysia_instafade.osk/file)![screenshot027](https://github.com/evrsense/skins/assets/158487080/d496a3b2-8a32-4588-bbef-12b098a3a737)
+
+
+
 # [selene](https://www.mediafire.com/file/dy6xxyyyb8k8v7y/selene.osk/file)![screenshot004](https://github.com/silveine/skins/assets/130988602/aff9bfb2-2358-448b-a0bd-8793bdfde704)
 
 
