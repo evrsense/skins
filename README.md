@@ -7,7 +7,7 @@
 # [⊹ ilysia](https://www.mediafire.com/file/fdr071mkao2b16u/-_%25E2%258A%25B9_ilysia.osk/file)![screenshot026](https://github.com/evrsense/skins/assets/158487080/dced346c-3270-4575-9dc1-af9dd87c90cc)
 
 
-# [⊹ ilysia instafade (its the same shit as](https://www.mediafire.com/file/093ssywt5gjpvti/%25E2%258A%25B9_ilysia_instafade.osk/file)![screenshot027](https://github.com/evrsense/skins/assets/158487080/d496a3b2-8a32-4588-bbef-12b098a3a737)
+# [⊹ ilysia instafade](https://www.mediafire.com/file/093ssywt5gjpvti/%25E2%258A%25B9_ilysia_instafade.osk/file)![screenshot027](https://github.com/evrsense/skins/assets/158487080/d496a3b2-8a32-4588-bbef-12b098a3a737)
 
 
 
