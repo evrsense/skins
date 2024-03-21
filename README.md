@@ -1,27 +1,27 @@
 # skins
 #### my username is evrsense add me if youd like :D
 
-# [⊹ eternal](https://www.mediafire.com/file/217h1wqyndpz0sq/%25E2%258A%25B9_eternal.osk/file)![screenshot025](https://github.com/evrsense/skins/assets/158487080/d2d0ebe1-63ea-47ff-923d-55902c3cc994)
+# [⊹ eternal](https://selene.s-ul.eu/Y29CqtyD)![screenshot025](https://github.com/evrsense/skins/assets/158487080/d2d0ebe1-63ea-47ff-923d-55902c3cc994)
 
-# [⊹ eternal dt](https://www.mediafire.com/file/ovtudi8fok4eqi4/⊹+eternal+dt.osk/file)![screenshot029](https://github.com/evrsense/skins/assets/158487080/0c5c4629-4daf-4503-afa3-2a293dc6b6f0)
+# [⊹ eternal dt](https://selene.s-ul.eu/Jmi3ry9u)![screenshot029](https://github.com/evrsense/skins/assets/158487080/0c5c4629-4daf-4503-afa3-2a293dc6b6f0)
 
-# [⊹ ilysia](https://www.mediafire.com/file/fdr071mkao2b16u/-_%25E2%258A%25B9_ilysia.osk/file)![screenshot026](https://github.com/evrsense/skins/assets/158487080/dced346c-3270-4575-9dc1-af9dd87c90cc)
-
-
-# [⊹ ilysia instafade](https://www.mediafire.com/file/093ssywt5gjpvti/%25E2%258A%25B9_ilysia_instafade.osk/file)![screenshot027](https://github.com/evrsense/skins/assets/158487080/d496a3b2-8a32-4588-bbef-12b098a3a737)
-
-# [ lazy tranquil edit](https://www.mediafire.com/file/0r7sckurmbmtx08/tranquil+edit.osk/file)![screenshot028](https://github.com/evrsense/skins/assets/158487080/405ef599-bcef-4dbe-ad7f-63ae1a4d0168)
+# [⊹ ilysia](https://selene.s-ul.eu/4esWG5T5)![screenshot026](https://github.com/evrsense/skins/assets/158487080/dced346c-3270-4575-9dc1-af9dd87c90cc)
 
 
+# [⊹ ilysia instafade](https://selene.s-ul.eu/qwMR0QGk)![screenshot027](https://github.com/evrsense/skins/assets/158487080/d496a3b2-8a32-4588-bbef-12b098a3a737)
 
-# [selene](https://www.mediafire.com/file/dy6xxyyyb8k8v7y/selene.osk/file)![screenshot004](https://github.com/silveine/skins/assets/130988602/aff9bfb2-2358-448b-a0bd-8793bdfde704)
+# [ lazy tranquil edit](https://selene.s-ul.eu/FFXYfZOs)![screenshot028](https://github.com/evrsense/skins/assets/158487080/405ef599-bcef-4dbe-ad7f-63ae1a4d0168)
 
 
 
-# [inoa](https://www.mediafire.com/file/4ngb34tmduq8o00/-_%25E2%258A%25B9_inoa.osk/file)![screenshot005](https://github.com/silveine/skins/assets/130988602/c815b0ec-62b7-4ce7-8eb3-dc44e46d4761)
+# [selene](https://selene.s-ul.eu/WhWzghqF)![screenshot004](https://github.com/silveine/skins/assets/130988602/aff9bfb2-2358-448b-a0bd-8793bdfde704)
 
 
 
-# [aia](https://www.mediafire.com/file/8dggnirxm83dc5v/-_%25E2%258A%25B9_aia.osk/file)![screenshot006](https://github.com/silveine/skins/assets/130988602/b73bc7b4-8117-4878-96d3-0603308fbb1c)
+# [inoa](https://selene.s-ul.eu/jvo3n9t3)![screenshot005](https://github.com/silveine/skins/assets/130988602/c815b0ec-62b7-4ce7-8eb3-dc44e46d4761)
 
-# [vomit](https://mega.nz/file/P2BB1bia#k4vyLvaM7eomoSmAt4xkwDVuvYIOCom_EqUL16FTqT4)![screenshot007](https://github.com/silveine/skins/assets/130988602/8d78adb5-10a1-460b-a922-6500dda5f4f9)
+
+
+# [aia](https://selene.s-ul.eu/Sx8HVw8O)![screenshot006](https://github.com/silveine/skins/assets/130988602/b73bc7b4-8117-4878-96d3-0603308fbb1c)
+
+# [vomit](https://selene.s-ul.eu/Zpz41ytL)![screenshot007](https://github.com/silveine/skins/assets/130988602/8d78adb5-10a1-460b-a922-6500dda5f4f9)
