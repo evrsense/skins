@@ -24,4 +24,4 @@
 
 # [aia](https://www.mediafire.com/file/8dggnirxm83dc5v/-_%25E2%258A%25B9_aia.osk/file)![screenshot006](https://github.com/silveine/skins/assets/130988602/b73bc7b4-8117-4878-96d3-0603308fbb1c)
 
-# [vomit](https://www.mediafire.com/file/r2ezfn6a1e6y08v/vomit.osk/file)![screenshot007](https://github.com/silveine/skins/assets/130988602/8d78adb5-10a1-460b-a922-6500dda5f4f9)
+# [vomit](https://mega.nz/file/P2BB1bia#k4vyLvaM7eomoSmAt4xkwDVuvYIOCom_EqUL16FTqT4)![screenshot007](https://github.com/silveine/skins/assets/130988602/8d78adb5-10a1-460b-a922-6500dda5f4f9)
