@@ -8,8 +8,6 @@
 # [⊹ ilysia](https://selene.s-ul.eu/4esWG5T5)![screenshot026](https://github.com/evrsense/skins/assets/158487080/dced346c-3270-4575-9dc1-af9dd87c90cc)
 
 
-# [⊹ ilysia instafade](https://selene.s-ul.eu/qwMR0QGk)![screenshot027](https://github.com/evrsense/skins/assets/158487080/d496a3b2-8a32-4588-bbef-12b098a3a737)
-
 # [ lazy tranquil edit](https://selene.s-ul.eu/FFXYfZOs)![screenshot028](https://github.com/evrsense/skins/assets/158487080/405ef599-bcef-4dbe-ad7f-63ae1a4d0168)
 
 
