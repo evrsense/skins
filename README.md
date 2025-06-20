@@ -1,5 +1,20 @@
-# skins
-#### my username is evrsense add me if youd like :D
+<p align="center">
+<img src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExMDNvNmJ4bWJsNHBraDI5NG5kamYwdHFybGhzOXh3dWgzcTFvd2JhcCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/T4u0nNjf4PoJxifOyt/giphy.gif" width="100" height="100" border="10"/>
+<p align="center">  my username is evrsense add me if youd like
+
+
+# <p align="center">[lift with your heart](https://lyfestal.s-ul.eu/NmwifUYI)![screenshot26](https://lyfestal.s-ul.eu/jOxpjtLt)
+# <p align="center">[raevv](https://lyfestal.s-ul.eu/XiVgdimO)![screenshot68](https://lyfestal.s-ul.eu/LBrWgWBz)
+# <p align="center">[ekko](https://lyfestal.s-ul.eu/oCUQvyyx)![screenshot100](https://lyfestal.s-ul.eu/FT5aME9C)
+# <p align="center">[ew emo](https://lyfestal.s-ul.eu/FiHYbfKA)![screenshot](https://lyfestal.s-ul.eu/6GPxPR2X)
+# <p align="center">[- eden](https://lyfestal.s-ul.eu/DFYd3ge4)![screenshot025](https://lyfestal.s-ul.eu/EoyCE1je)
+
+
+
+
+
+
+# <p align="center">  ┄┄┄┄ older skins ┄┄┄┄
 
 # [⊹ eternal](https://selene.s-ul.eu/Y29CqtyD)![screenshot025](https://github.com/evrsense/skins/assets/158487080/d2d0ebe1-63ea-47ff-923d-55902c3cc994)
 
