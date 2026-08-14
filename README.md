@@ -1,6 +1,6 @@
 <p align="center">
 <img src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExMDNvNmJ4bWJsNHBraDI5NG5kamYwdHFybGhzOXh3dWgzcTFvd2JhcCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/T4u0nNjf4PoJxifOyt/giphy.gif" width="100" height="100" border="10"/>
-# <p align="center">  if any links are broken dm me on twt @lyfestal ^_^
+ <p align="center">  if any links are broken dm me on twt @lyfestal ^_^
 
 # <p align="center">[lift with your heart](https://lyfestal.s-ul.eu/NmwifUYI)![screenshot26](https://lyfestal.s-ul.eu/jOxpjtLt)
 # <p align="center">[raevv](https://lyfestal.s-ul.eu/XiVgdimO)![screenshot68](https://lyfestal.s-ul.eu/LBrWgWBz)
